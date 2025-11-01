@@ -12,4 +12,4 @@ Team Member: Ashore Raj R
 
 Team Member: Dhivakar A
 
- Video Link: https://drive.google.com/drive/folders/1cS9JpDkTKwD1AAaTUU424bSQ5K8RMpLt
+ Video Link: https://drive.google.com/file/d/17TKHr1G4qqXl9S8Ed-n1QUiPOP2sy5Ac/view?usp=drivesdk
